@@ -3,6 +3,7 @@
 ### Section 1
 > Tưởng tượng đuối lý đến nỗi gọi cả server ra bợ đít... chắc chắn không phải là ItzKhoaGaming!!!1!  
 ![image](https://user-images.githubusercontent.com/67498765/152801290-84b257a3-ce2c-4d1e-9af6-4f4eaf2f6d24.png)  
+![image](https://user-images.githubusercontent.com/67498765/152800080-267a21d1-01f2-4ce5-a0ad-9b0f5d8aaa8d.png)  
 
 ### Section 2  
 > 2k9 break Discord ToS ư? Không sao, ở đây có 2 thằng làm helper và admin luôn, sợ gì.  
