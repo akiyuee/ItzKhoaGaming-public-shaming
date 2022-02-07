@@ -1,4 +1,5 @@
-## ItzKhoaGaming-public-shaming
+# ItzKhoaGaming-public-shaming
+Title says it all
 
 ### Section 1
 > Tưởng tượng đuối lý đến nỗi gọi cả server ra bợ đít... chắc chắn không phải là ItzKhoaGaming!!!1!  
