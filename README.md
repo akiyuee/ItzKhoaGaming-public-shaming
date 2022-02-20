@@ -40,5 +40,5 @@ Title says it all
 ![image](https://cdn.discordapp.com/attachments/855066292800454688/944896211662565386/unknown.png)  
 
 ### Section 7
-> Không pirate được game thì đổ tại game  
+> Không pirate được game thì đổ tại game, L  
 ![image](https://i.imgur.com/ufatNP3.png)
