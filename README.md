@@ -31,7 +31,8 @@ Title says it all
 ![image](https://media.discordapp.net/attachments/894853950346502215/940965492158513192/Screenshot_20220209-204037.jpg  )
 
 ### Section 6
-> Chửi windows = học lại lớp 1  
+> Chửi windows = học lại lớp 1 😭😭😭
+> Ôi không mình bị mấy em lớp 1 dạy đời 😅  
 ![image](https://cdn.discordapp.com/attachments/855066292800454688/944896084260569109/unknown.png)  
 ![image](https://cdn.discordapp.com/attachments/855066292800454688/944896108138749963/unknown.png)  
 ![image](https://cdn.discordapp.com/attachments/855066292800454688/944896135598866502/unknown.png)  
