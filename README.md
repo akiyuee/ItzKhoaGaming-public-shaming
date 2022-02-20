@@ -1,6 +1,10 @@
 # ItzKhoaGaming-public-shaming
 Title says it all
 
+### Cứt khoa gêm minh cay đỏ tinh hoàn à 😅  
+![image](https://user-images.githubusercontent.com/67498765/154837214-b45e7103-841e-4c6a-86b4-f4cca5430b25.png)
+
+
 ### Section 1
 > Tưởng tượng đuối lý đến nỗi gọi cả server ra bợ đít... chắc chắn không phải là ItzKhoaGaming!!!1!  
 ![image](https://user-images.githubusercontent.com/67498765/152801290-84b257a3-ce2c-4d1e-9af6-4f4eaf2f6d24.png)  
