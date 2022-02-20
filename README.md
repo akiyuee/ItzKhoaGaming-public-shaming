@@ -32,8 +32,9 @@ Title says it all
 
 ### Section 6
 > Chửi windows = học lại lớp 1  
-![image](https://cdn.discordapp.com/attachments/855066292800454688/944896084260569109/unknown.png)
-![image](https://cdn.discordapp.com/attachments/855066292800454688/944896108138749963/unknown.png)
-![image](https://cdn.discordapp.com/attachments/855066292800454688/944896135598866502/unknown.png)
-![image](https://cdn.discordapp.net/attachments/855066292800454688/944896178431086602/unknown.png)
-![image](https://cdn.discordapp.com/attachments/855066292800454688/944896211662565386/unknown.png)
+![image](https://cdn.discordapp.com/attachments/855066292800454688/944896084260569109/unknown.png)  
+![image](https://cdn.discordapp.com/attachments/855066292800454688/944896108138749963/unknown.png)  
+![image](https://cdn.discordapp.com/attachments/855066292800454688/944896135598866502/unknown.png)  
+![image](https://cdn.discordapp.net/attachments/855066292800454688/944896178431086602/unknown.png)  
+![image](https://cdn.discordapp.com/attachments/855066292800454688/944896211662565386/unknown.png)  
+ 
