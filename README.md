@@ -29,3 +29,11 @@ Title says it all
 ![image](https://user-images.githubusercontent.com/67498765/152912983-35f0e7bf-2728-40f1-af08-2df1a3fccf00.png)  
 ![image](https://user-images.githubusercontent.com/67498765/152913036-b087a768-1584-4f02-b2cd-94cb196692a0.png)  
 ![image](https://media.discordapp.net/attachments/894853950346502215/940965492158513192/Screenshot_20220209-204037.jpg  )
+
+### Section 6
+> Chửi windows = học lại lớp 1  
+![image](https://cdn.discordapp.com/attachments/855066292800454688/944896084260569109/unknown.png)
+![image](https://cdn.discordapp.com/attachments/855066292800454688/944896108138749963/unknown.png)
+![image](https://cdn.discordapp.com/attachments/855066292800454688/944896135598866502/unknown.png)
+![image](https://cdn.discordapp.net/attachments/855066292800454688/944896178431086602/unknown.png)
+![image](https://cdn.discordapp.com/attachments/855066292800454688/944896211662565386/unknown.png)
