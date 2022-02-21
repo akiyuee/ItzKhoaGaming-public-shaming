@@ -42,3 +42,7 @@ Title says it all
 ### Section 7
 > Không pirate được game thì đổ tại game LLLLLLLLLLLLLLL  
 ![image](https://i.imgur.com/ufatNP3.png)
+
+### Section 8
+> Furry bị chửi tri đỏ dái 😭😭😭  
+![image](https://i.imgur.com/pQKKEtT.png)
